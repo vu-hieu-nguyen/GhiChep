@@ -2,8 +2,6 @@
 
 ### Từ khi mới sinh đến khi rời khỏi Hà Nội (1941-1946)
 
-$\alpha$
-
 Ông nội tên thật là Nguyễn Huy Sán, khi đi hoạt động cách mạng thì có tên là Thảo hay còn gọi là Auguste. Nhưng ở làng thì mọi người hay gọi ông là ông Cả Gai. "Cả" là vì ông là con trưởng. Bố của ông là cụ Quản Chứ, nhà ở làng Gia Thuỵ. Ông nội kết hôn với bà nội, là bà Vũ Thị Bé, ở Quảng Ninh, khoảng năm 1938-1939. Về sau, bố có gặp ông Phan Điền, nguyên bí thư tỉnh uỷ tỉnh Hà nam, và được nghe ông Phan Điền kể là ông ấy cũng có mặt trong lễ kết hôn của ông bà. Lễ cưới rất đơn giản, chỉ có vài người cùng hoạt động chứng kiến, rồi sau đó mọi người ra một cái quán nhỏ, mỗi người ăn vài cái nem là xong.
 
 Sau khi từ Côn Đảo trở về năm 1936, ông Cả Gai tiếp tục hoạt động ở Quảng Ninh và bị bắt năm 1939, rồi bị đưa về nhà tù Hoả Lò trong khoảng thời gian 1939-1943. Ông An (em trai ông nội) kể, trong thời gian này, có hai lần ông Cả Gai được hưởng chế độ quản thúc tại nhà ở Gia Thuỵ, mỗi lần khoảng 1, 2 tháng gì đó, vào khoảng đầu năm 1940 và đầu năm 1941. Ông Gai và bà Bé được ở gần nhau trong thời gian này nên sinh ra bố vào đầu năm 1941. Bà Cầu (em gái ông nội) kể chuyện, có lần nhìn thấy ông Cả Gai nấu bột cho con, đun bằng rơm xong để tàn rơm rơi vào trong xoong. Ông nhìn xoong bột dính đầy tàn rơm, chắc là sợ bẩn nên không dám cho con ăn, nên cứ cầm xoong bột đi ra đi vào, rồi cuối cùng đổ hết vào thùng nước gạo và nấu lại xoong bột khác. Như thế, trong khoảng thời gian ngắn sau khi bố mới sinh, cả gia đình đều ở Gia Thuỵ.
