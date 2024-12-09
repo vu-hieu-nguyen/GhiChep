@@ -1,7 +1,8 @@
 ## Chuyện bố
 
 ### Từ khi mới sinh đến khi rời khỏi Hà Nội (1941-1946)
-$alpha$
+
+$$alpha$$ 
 
 Ông nội tên thật là Nguyễn Huy Sán, khi đi hoạt động cách mạng thì có tên là Thảo hay còn gọi là Auguste. Nhưng ở làng thì mọi người hay gọi ông là ông Cả Gai. "Cả" là vì ông là con trưởng. Bố của ông là cụ Quản Chứ, nhà ở làng Gia Thuỵ. Ông nội kết hôn với bà nội, là bà Vũ Thị Bé, ở Quảng Ninh, khoảng năm 1938-1939. Về sau, bố có gặp ông Phan Điền, nguyên bí thư tỉnh uỷ tỉnh Hà nam, và được nghe ông Phan Điền kể là ông ấy cũng có mặt trong lễ kết hôn của ông bà. Lễ cưới rất đơn giản, chỉ có vài người cùng hoạt động chứng kiến, rồi sau đó mọi người ra một cái quán nhỏ, mỗi người ăn vài cái nem là xong.
 
